@@ -36,5 +36,5 @@ Chemical composition, Goat, Meat, Quality, Race
  
  Goat meat, Minerals, Iron, Protein, Calcium, Lipids, Energy, Cholesterol
  
- - 
+ 
 
