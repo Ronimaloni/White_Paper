@@ -37,4 +37,7 @@ Chemical composition, Goat, Meat, Quality, Race
  Goat meat, Minerals, Iron, Protein, Calcium, Lipids, Energy, Cholesterol
  
  
+ Call to action is to eat more goat meat. (especially since I raise Meat Goats.)
+ 
+ 
 
