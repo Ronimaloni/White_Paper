@@ -1,6 +1,6 @@
 ## Quick and Dirty Tips
 
-I am apparently a shmuck with Mocrosoft Word
+I am apparently a shmuck with Microsoft Word
 
 ### 1. Research
 
