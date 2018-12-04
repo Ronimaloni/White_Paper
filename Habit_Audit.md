@@ -8,4 +8,4 @@ I will try to start writing tomorrow, so this time I am starting two weeks ahead
 
 ### One strength
 
-I usually make an outline and then just sit and write most of the way through. When I do write, I write in big chuncks at a time then go back and edit later. 
+I usually make an outline and then just sit and write most of the way through. I like to handwrite because my thoughts flow out much better and faster when I handwrite. I dont have to think about the words or letters. I am not coordinated enough to type well for long periods of time. When I do write, I write in big chuncks at a time then go back and edit later. 
