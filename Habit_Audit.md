@@ -4,7 +4,7 @@ Usually, I would start three days before, at 10:00 pm. Then a little bit the nex
 
 ### How might they improve?
 
-I will try to start writing tomorrow, so this time I am starting two weeks ahead instead of two days ahead. I am going to try to work on it a little bit when I have time (which is not very much at all). I don't have to work this weekend, so alot of my writing is probably going to be done then. I will still be editing until at least 1:00 a.m. the day it is due. This will suck, because I have another final to study for. I wish this semester was over already! I will be writing this paper, making two other presentation, writing a term paper, on top of being at basketball games becasue for some reason I thought it was a good idea to join pep band, then I will be working in the chemistry department close to 30 hours during finals becasue I have to get everything graded, cleaned, and turned in by the end of finals. Sorry. I needed to rant.  My writing will improve when I run away to become a hermit, then I won't have any social obligations, or classes. I will just have time to do homework.
+I will try to start writing tomorrow, so this time I am starting two weeks ahead instead of two days ahead. I am going to try to work on it a little bit when I have time (which is not very much at all). I don't have to work this weekend, so alot of my writing is probably going to be done then. I will still be editing until at least 1:00 a.m. the day it is due. This will suck, because I have another final to study for. My writing will improve when I run away to become a hermit, then I won't have any social obligations, or classes. I will just have time to do homework.
 
 ### One strength
 
